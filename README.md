@@ -1,4 +1,4 @@
-# why-do-people-go-to-colledge-
+# why-do-people-go-to-college-
 TOFEL . IBT
 1. Why do people attend college?
 
